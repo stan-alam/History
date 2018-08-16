@@ -1,4 +1,4 @@
-### Why Do Dinosaurs Matter?
+### Why Dinosaurs Matter?
 **notes**
 ```text
 What can long-dead dinosaurs teach us about our future? Plenty, according to paleontologist Kenneth Lacovara, who has discovered some of the largest creatures to ever walk the Earth.
