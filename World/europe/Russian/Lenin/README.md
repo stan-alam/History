@@ -1,0 +1,11 @@
+## notes on 'Lenin: The Man, the Dictator, and the Master of Terror '
+
+'The regime [Lenin] created was largely shaped by his personality,' writes Victor Sebestyen, 'secretive, suspicious, intolerant, ascetic, intemperate.'
+
+Victor Sebestyen's riveting biography of Vladimir Ilyich Lenin—the first major biography in English in nearly two decades—is not only a political examination of one of the most important historical figures of the twentieth century but also a fascinating portrait of Lenin the man.
+
+Brought up in comfort and with a passion for hunting and fishing, chess, and the English classics, Lenin was radicalized after the execution of his brother in 1887. Sebestyen traces the story from Lenin's early years to his long exile in Europe and return to Petrograd in 1917 to lead the first Communist revolution in history. Uniquely, Sebestyen has discovered that throughout Lenin's life his closest relationships were with his mother, his sisters, his wife, and his mistress. The long-suppressed story told here of the love triangle that Lenin had with his wife, Nadezhda Krupskaya, and his beautiful, married mistress and comrade, Inessa Armand, reveals a more complicated character than that of the coldly one-dimensional leader of the Bolshevik Revolution.
+
+With Lenin's personal papers and those of other leading political figures now available, Sebestyen gives is new details that bring to life the dramatic and gripping story of how Lenin seized power in a coup and ran his revolutionary state. The product of a violent, tyrannical, and corrupt Russia, he chillingly authorized the deaths of thousands of people and created a system based on the idea that political terror against opponents was justified for a greater ideal. An old comrade what had once admired him said that Lenin "desired the good . . . but created evil." This included his invention of Stalin, who would take Lenin's system of the gulag and the secret police to horrifying new heights.
+
+In Lenin, Victor Sebestyen has written a brilliant portrait of this dictator as a complex and ruthless figure, and he also brings to light important new revelations about the Russian Revolution, a pivotal point in modern history.
