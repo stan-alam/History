@@ -34,3 +34,6 @@ In Lenin, Victor Sebestyen has written a brilliant portrait of this dictator as 
 
 "He was not icy, logical and one-dimensional as he is often portrayed. He was highly emotional and flew into rages that almost crippled him."
 ― from "Lenin: The Man, the Dictator, and the Master of Terror"
+
+"Yet after he died a ‘cult’ of Lenin was developed by his successors which encouraged worship of him as a secular icon representing the pillar of Bolshevik rectitude"
+― from "Lenin: The Man, the Dictator, and the Master of Terror"
