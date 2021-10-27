@@ -1,0 +1,7 @@
+## notes on Gladius: The World of the Roman Soldier
+
+The Roman army was the greatest fighting machine in the ancient world. More than that, it was the single largest organization in Western antiquity, taking in members from all classes, from senators to freed slaves. The Roman Empire depended on its army not just to win its wars, defend its frontiers, and control the seas, but to act as the very engine of the state. 
+
+In Gladius, Guy de la Bedoyere takes us straight to the heart of what it meant to be a part of the Roman army. Rather than a history of the army itself, or a guide to military organization and fighting methods, this book is a ground-level recreation of what it was like to be a soldier in the army that made the empire. Surveying numerous aspects of life in the Roman army between 264 BCE and 337 CE, Gladius draws not only on the words of famed Roman historians, but also those of the soldiers themselves, as recorded in their religious dedications, tombstones, and even private letters and graffiti. 
+
+By illuminating the history of one organization that reflected all corners of the Roman world, gives us a portrait of an ancient society that is unprecedented in both its broad sweep and gritty intimacy.
