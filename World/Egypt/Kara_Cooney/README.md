@@ -2,10 +2,6 @@
 Kara Cooney
 
 <p align="center">
-  <img src="https://github.com/stan-alam/History/blob/develop/World/Egypt/Kara_Cooney/01/images/PICT0179.JPG" width="80%" height="80%">
-</p>
-
-<p align="center">
   <img src="https://github.com/stan-alam/History/blob/develop/World/Egypt/Kara_Cooney/01/images/Book01.jpg" width="80%" height="80%">
 </p>
 
