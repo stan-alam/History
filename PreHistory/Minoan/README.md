@@ -9,7 +9,7 @@ https://www.technologyreview.com/s/613899/machine-learning-has-been-used-to-auto
 </a>
 
 <a>
-  <img src="https://github.com/stan-alam/History/blob/develop/PreHistory/Minoan/images/svg/01/linB%20-%20page%202.png" width="70%" height="70%">
+  <img src="https://github.com/stan-alam/History/blob/develop/PreHistory/Minoan/images/svg/01/linB%20-%20page%202.png" width="65%" height="65%">
 </a>
 
 ## Linear B not Linear A
