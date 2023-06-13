@@ -33,4 +33,24 @@ They were able to unite individual warring states into a cohesive country and un
 
   The general consensus is that the Old Kingdom began around the year 1750 B.C., though the Hittite existed in the region for an additional 250 years before this date. The year 1750 B.C. is reflective of the establishment of Hattusa being established as the permanent capital of Anatolia, a distinction it would hold until the final days of the New Kingdom. Records indicate that the accepted range of the Old Kingdom runs from 1750 B.C. until 1500 B.C. The Middle Kingdom existed briefly beginning in the year 1500 B.C. and lasting only a brief 50 years. The year 1450 B.C. begins what many call the New Kingdom when King Suppiluliumas I begins to turn the country of Anatolia into an empire. It is in this year that Suppiluliumas I conquers Syria
 Note: Supp
+
+Some notable Hittite kings and their notable deeds are: 
+      
+    ●       Labarnash  
+    o       The first king to rule over a united Hittite kingdom in the early 16th century BC 
+    ●       Hattusili I 
+    o       Relocated the Hittite capital from Nesa to Hattusa 
+    ●       Mursilis I 
+Note: Not
+
+ Came to the throne as a youth 
+    o       Plundered Babylon in 1531 BC 
+    o       Acquired massive sections of Northern Syria through military conquest 
+    o       His assassination brought about a massive civil unrest that led to the loss of lands gained throughout his military campaigns. 
+    ●       Muwatalli II  
+    o       Led Hittite armies in the Battle of Kadesh against Ramesses II 
+    o       Signed the first peace treaty on record in recorded history to end the conflict between Anatolia and Egypt 
+    ●       Mursilish II 
+    o       Son of Supiluliuma I 
+    o       Assumed power after both his father and brother, Arnuwanda II, fell victim to the plague 
 ```
