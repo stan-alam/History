@@ -48,3 +48,87 @@ Note: 09
 
 . You will join me on the flanks of the po­lar Urals, where I en­coun­tered the most an­cient Arc­tic pop­u­la­tions; in the Rhône val­ley, in search of strange can­ni­bals; or on the slopes of Mount Ven­toux, the gi­ant moun­tain in Provence, to dis­cover mys­te­ri­ous deer hunters – who in fact hunted ex­clu­sively stags in the prime of life, a hun­dred mil­len­nia ago, in the vast pri­mary for­est of Eu­rope,
 Note: 10.
+
+. I will ex­plore its ways of be­ing in the world, which bring us back to our own hu­man­ity and the fragility of our own ideas.
+Note: 04
+
+. A Home­ric jour­ney of body and soul, like ev­ery true jour­ney. A jour­ney to a dis­tant place, of course – it is al­ways a long jour­ney – but you can re­main seated, or rather on all fours, in among the rocks or on the banks of large rivers where in a frozen, fos­silized state we find scenes, ac­tions, events that speak to us of peo­ples far away, in both space and time. Peo­ples erased from our ir­re­deemably am­ne­siac mem­o­ries. Peo­ples for ever ex­tinct.
+ 
+Note: 05
+
+Be­cause there was in­deed an ex­tinc­tion. A fi­nal full stop.
+ Sud­den, un­ex­pected. And there it is, in front of us, like an enigma with no clues, but a head-spin­ning enigma. So even hu­mans can die out with­out warn­ing? The dis­ap­pear­ance of a whole hu­man­ity, so near to us in time, should raise many ques­tions. Can a hu­man­ity re­ally be­come ex­tinct?
+ Of all the ques­tions I dis­cuss here, this one is the
+Note: 0
+
+. These ge­netic traces are the marks of dis­tant en­coun­ters be­tween bi­o­log­i­cally di­verse pop­u­la­tions which were prob­a­bly only par­tially fer­tile. Based on these traces some have sug­gested that this ex­tinc­tion was only a rel­a­tive one – a type of di­lu­tion, in other words. Such sug­ges­tions are not only sci­en­tif­i­cally er­ro­neous but also fun­da­men­tally spe­cious.
+ Imag­ine for a mo­ment
+Note: Important
+
+That hu­man­ity is ex­tinct, to­tally ex­tinct. That hu­man branch is no more, and its essence, which we will ex­plore to­gether, is ir­re­versibly ex­tin­guished along with it.
+
+
+But time in pre­his­tory is mea­sured with a mar­gin of er­ror of plus or mi­nus a thou­sand years. This er­ror of one to two thou­sand years de­rives from the im­pre­ci­sion of the car­bon-14 dat­ing method. Ac­cord­ing to that method­ol­ogy, you no doubt dined yes­ter­day evening with Charle­magne on your left and Julius Cae­sar on your right … Bon ap­pétit …
+
+Note: Important
+
+In France, still con­sid­ered to be the num­ber-one na­tion when it comes to pre­his­toric re­search, no ar­chae­o­log­i­cal op­er­a­tion has turned up a new Ne­an­derthal body since the late 1970s, and there have been vir­tu­ally no new com­plete ar­chae­o­log­i­cal se­quences, with flints, bones and hu­man re­mains, to up­date our knowl­edge of the fi­nal mil­len­nia of this pop­u­la­tion.
+
+Whereas we must ad­mit that we have no idea what Ne­an­derthal art might have been like, con­versely, we know that sapi­ens art is a con­tin­uum.
+
+Note: Important
+
+. The Ne­an­derthal ex­tinc­tion is 
+Note: 05
+7
+
+sim­ple fact: the dis­ap­pear­ance of a hu­man­ity and its an­ces­tral ways of liv­ing, re­placed sud­denly by the new era of the re­cent Palae­olithic, borne into Eu­rope by the pow­er­ful waves of the sapi­ens in­flux.
+ 
+Note: 6
+
+al­ready been ex­pressed dozens of mil­len­nia be­fore them. They were all stag­gered to dis­cover that across the world and across time sapi­ens art is a sin­gle, ho­mo­ge­neous art. An­dré De­rain, in his let­ters to an­other great Fau­vist, Vlam­inck, wrote in 1955: ‘I am some­what moved by my trip to Lon­don as well as to the Na­tional Mu­seum
+Note: 8
+
+‘What we need is to stay young, per­pet­u­ally a child: we could make beau­ti­ful things all our lives. Oth­er­wise, when we be­come civ­i­lized, we be­come like ma­chines that are well adapted to life but noth­ing more!’
+ 
+Note: 10
+
+This idea that some of us are the in­her­i­tors of a dis­ap­peared hu­man­ity is a bizarre il­lu­sion. In re­al­ity, cross-breed­ing and hy­bridiza­tion be­tween dif­fer­ent species are com­mon­place in the nat­u­ral world. There are fe­lids, canids, ur­sids, suidae, and they are usu­ally in­ter­fer­tile; we are sur­rounded by tigrons, ligers, boar-pigs or pig-boars, but these bi­o­log­i­cal chimerae do not in any way il­lu­mi­nate the des­tiny of li­ons, tigers, pigs or wild boars.
+Note: 11
+
+Cae­sar and Charle­magne, and that’s as much as we know.
+ There are vir­tu­ally no ar­chae­o­log­i­cal sites in the whole of Eu­rope for which our mea­sure­ments of time are suf­fi­ciently pre­cise to es­tab­lish with any cer­tainty that the two hu­man­i­ties en­coun­tered each other.
+Note: 12. Then what about the genes?
+
+is wa­ter­tight: there is no clinch­ing proof of the two hu­man­i­ties ever en­coun­ter­ing each other in any part of the Eu­ro­pean con­ti­nent.
+
+Note: 13
+
+At this time, Eura­sia was cov­ered by icy wastes, and the Ne­an­derthal, for the dozens of mil­len­nia up to its ex­tinc­tion, was a po­lar crea­ture. But there is po­lar and there is po­lar – and ar­chae­o­log­i­cal re­search shows that a very small num­ber of Palae­olithic so­ci­eties col­o­nized the bo­real spa­ces of the Rus­sian Arc­tic even when the planet was plunged into the deep­est ice age.
+Note: 15
+
+There is a piece of Inuit wis­dom that might be summed up as fol­lows: cold is never a prob­lem for hu­mans. Ac­cess to pro­teins and sta­ple food­stuffs is the only fac­tor that lim­its hu­man ex­pan­sion. Our bod­ies are not very sus­cep­ti­ble to cold when it is dry, and these Eurasian po­lar re­gions of the last age were markedly dry, prob­a­bly even arid, in their cold­ness. In ‘feels like’ terms to­day, it is colder in St Pe­ters­burg in Feb­ru­ary at -16 °C than in the con­ti­nen­tal ex­panses of Siberia at -30 °C. Dur­ing my re­search in the po­lar re­gions, I had to ex­per­i­ment with the re­ac­tion of my own me­tab­o­lism when, for weeks on end, I was daily ex­posed to tem­per­a­tures of -25 °C.
+Note: 16
+
+prob­a­bly less than ten, I found that my body no longer suf­fered from the cold and I could spend the whole day walk­ing in the taiga with­out ever re­ally en­dur­ing the ex­pe­ri­ence of cold.
+Note: Important
+
+The ex­tinc­tion of the Ne­an­derthals, then, was the con­se­quence of a sim­ple change of cli­mate and an in­abil­ity to adapt to new biotopes.
+
+Note: 18
+
+Palae­olithic so­ci­eties prob­a­bly did not need spe­cial tech­no­log­i­cal or so­cial means to deal with the di­verse biotopes of the planet. Their bod­ies alone prob­a­bly did most of the work.
+Note: 19
+
+The Ob crosses the whole of Siberia, from north to south; its delta alone, cov­er­ing three mil­lion square kilo­me­tres, is al­most as large as that of the Nile, the long­est river in the world, the equiv­a­lent of al­most five times the sur­face area of France. 
+Note: 02.10.24
+
+An­dré Leroi-Gourhan in par­tic­u­lar, a man of rare in­tel­lect whose in­ter­ests en­com­passed ar­chae­ol­ogy, eth­nol­ogy and phi­los­o­phy. Leroi-Gourhan had been pro­foundly in­flu­enced by the great pro­grammes
+Note: 01.
+
+Mam­moths and rhi­nos have been dis­cov­ered by the sparse in­hab­i­tants of the Siberian ex­panses, trap­pers or rein­deer herders of the far north, but what has hap­pened to the bod­ies of the Palae­olithic hunters in this wilder­ness? In­cred­i­bly, the great­est finds were made by a child play­ing on a river­bank and an artist search­ing for ivory for his mar­vel­lous sculp­tures. Just like that, by the side of a stream, in a marsh, as the 
+Note: 03
+
+
+ Imag­ine this: de­spite the im­pres­sive ef­forts of So­viet ar­chae­ol­o­gists, there are only three rec­og­nized Arc­tic ar­chae­o­log­i­cal en­sem­bles older than twenty mil­len­nia on earth.
+Note: 04
