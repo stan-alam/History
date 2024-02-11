@@ -68,7 +68,7 @@ Note: Important
 That hu­man­ity is ex­tinct, to­tally ex­tinct. That hu­man branch is no more, and its essence, which we will ex­plore to­gether, is ir­re­versibly ex­tin­guished along with it.
 
 
-But time in pre­his­tory is mea­sured with a mar­gin of er­ror of plus or mi­nus a thou­sand years. This er­ror of one to two thou­sand years de­rives from the im­pre­ci­sion of the car­bon-14 dat­ing method. Ac­cord­ing to that method­ol­ogy, you no doubt dined yes­ter­day evening with Charle­magne on your left and Julius Cae­sar on your right … Bon ap­pétit …
+**But time in pre­his­tory is mea­sured with a mar­gin of er­ror of plus or mi­nus a thou­sand years. This er­ror of one to two thou­sand years de­rives from the im­pre­ci­sion of the car­bon-14 dat­ing method. Ac­cord­ing to that method­ol­ogy, you no doubt dined yes­ter­day evening with Charle­magne on your left and Julius Cae­sar on your right … Bon ap­pétit …**
 
 Note: Important
 
