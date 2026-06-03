@@ -32,7 +32,7 @@ Note: 3
 
 
 
-\*\*The chivalry valued honor above all human traits and would happily kill to sustain it, but only in accord with the rules set out in the Code Duello, which specified exactly how a man suffering an abrasion of honor could challenge and, if he wished, murder another.\*\*
+The chivalry valued honor above all human traits and would happily kill to sustain it, but only in accord with the rules set out in the Code Duello, which specified exactly how a man suffering an abrasion of honor could challenge and, if he wished, murder another.
 
 Note: 4.5
 
@@ -50,7 +50,7 @@ Note: 6
 
 
 
-\*\*Alexis de Tocqueville had observed this aspect of the planter class two decades earlier in his Democracy in America and attributed it to slavery. “The citizen of the Southern states becomes a sort of domestic dictator from infancy,” he wrote. “The first notion he acquires in life is, that he was born to command, and the first habit he contracts is that of ruling without resistance. His education tends, then, to give him the character of a haughty and hasty man,—irascible, violent, ardent in his desires, impatient of obstacles but easily discouraged if he cannot succeed upon his first attempt.\*\*
+Alexis de Tocqueville had observed this aspect of the planter class two decades earlier in his Democracy in America and attributed it to slavery. “The citizen of the Southern states becomes a sort of domestic dictator from infancy,” he wrote. “The first notion he acquires in life is, that he was born to command, and the first habit he contracts is that of ruling without resistance. His education tends, then, to give him the character of a haughty and hasty man,—irascible, violent, ardent in his desires, impatient of obstacles but easily discouraged if he cannot succeed upon his first attempt.
 
 Note: 06.02.2026
 
@@ -96,7 +96,55 @@ Note: 07
 
 They held jousting competitions, called “heads and rings,” where a rider bearing the name of one of Scott’s or Tennyson’s knights, wearing knightly garb and holding a long lance, would ride at full gallop and attempt to spear a series of dangling metal rings as small as half an inch 
 
-Note: recreation class
+Note: recreational class
+
+
+
+As Doubleday saw it, he was fighting for the survival of the United States. “The only alternative was to submit to a powerful oligarchy who were determined to make freedom forever subordinate to slavery.”
+
+Note: 6.02.2026 08
+
+
+
+all configurations flew toward Sumter at seventeen hundred feet per second. He was a popular cannoneer; in all he fired guns twenty-seven times.
+
+Note: 02
+
+
+
+thus far was deemed very much in accord with the chivalry’s code of honor. For the moment, at least, this was not war but rather an elaborate if perilous form of sport.
+
+Note: 03
+
+
+
+Captain Fox resolved to attempt the first phase of his mission, the peaceful delivery of provisions to Fort Sumter.
+
+Note: 04
+
+
+
+
+
+
+
+Monday, in a cold mist, Ruffin and fellow soldiers rode out to scavenge the battlefield. He took great satisfaction in examining the Union dead and savored the details. “Clotted blood, in what had been pools, were under or by almost every corpse,” he wrote. “From bullet holes in the heads of some, the brains had partly oozed out. The white froth covering the mouths of others was scarcely less shocking in appearance.” Next he rode down to the bridge to examine his own handiwork. He found only three bodies. “This was a disappointment to me,” he wrote. “I should have liked not only to have killed the greatest possible number—but also to know, if possible, which I had killed, and to see and count the bodies.”
+
+Note: Bloodthirsty psychopath
+
+
+
+. Edmund Ruffin
+
+Note: 06.03.2026
+
+
+
+missing. (Ruffin’s son Charles survived the battle but later deserted, much to his father’s shame.)
+
+Note: 02
+
+
 
 
 
